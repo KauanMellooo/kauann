@@ -1,2 +1,0 @@
-# kauann
-sustatenbilidade 1
